@@ -1,1 +1,1 @@
-# Navigated-non-invasive-neuromodulation
+# Navigated non-invasive neuromodulation
